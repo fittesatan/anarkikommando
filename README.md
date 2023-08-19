@@ -1,0 +1,2 @@
+# anarkikommando
+Noen måtte jo
